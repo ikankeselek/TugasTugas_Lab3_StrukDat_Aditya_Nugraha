@@ -1,2 +1,2 @@
-# Disini Saya mengupload Tugas Lab 3 strukdat
+# Disini Saya (Aditya) mengupload Tugas Lab 3 strukdat
 
